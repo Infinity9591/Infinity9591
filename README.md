@@ -18,6 +18,22 @@ Rất mong nhận được lời khuyên của mọi người.
 
 Còn giờ tại hạ cáo từ!
 
+#EN
+
+My nickname is Infinity, yeah that not my name but I think if it is a secret, it will be better. <(") 
+
+I am on the way to become a developer, my experience is so little, please don't judge me. ;-;
+
+My GitHub will store my cute little project, maybe both big project but it will be a reality when I become a professional developer. <(")
+
+If that is the first time you have seen my GitHub, you want to support me, you can contact me on Facebook : 
+
+    - Facebook : facebook.com/infinity.9591
+    
+I am waiting to receive your advice.
+
+Goodbye.
+
 <!---
 Infinity9591/Infinity9591 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
