@@ -28,7 +28,7 @@ I am on the way to become a developer, my experience is so little, please don't 
 
 My GitHub will store my cute little project, maybe both big project but it will be a reality when I become a professional developer. <(")
 
-If that is the first time you have seen my GitHub, you want to support me, you can contact me on Facebook : 
+If that is the first time you have seen my GitHub, you want to support me, you can contact me on : 
 
     - Facebook  : facebook.com/infinity.9591
     - Twitter/X : https://twitter.com/Infinity9591
