@@ -12,7 +12,6 @@ GitHub này là nơi mình lưu trữ các project nhỏ xinh của mình, có t
 
 Nếu bạn là người mới đến, không biết đến mình hoặc ủng hộ, ý kiến với mình về các sản phẩm có thể liên hệ với mình qua :
 
-    - Facebook  : facebook.com/infinity.9591
     - Twitter/X : https://twitter.com/Infinity9591
     - Discord   : infinity9591
     
@@ -30,7 +29,6 @@ My GitHub will store my cute little project, maybe both big project but it will 
 
 If that is the first time you have seen my GitHub, you want to support me, you can contact me on : 
 
-    - Facebook  : facebook.com/infinity.9591
     - Twitter/X : https://twitter.com/Infinity9591
     - Discord   : infinity9591
     
