@@ -14,6 +14,7 @@ Nếu bạn là người mới đến, không biết đến mình hoặc ủng h
 
     - Twitter/X : https://twitter.com/Infinity9591
     - Discord   : infinity9591
+    - Telegram  : +84342029854
     
 Rất mong nhận được lời khuyên của mọi người.
 
@@ -31,6 +32,7 @@ If that is the first time you have seen my GitHub, you want to support me, you c
 
     - Twitter/X : https://twitter.com/Infinity9591
     - Discord   : infinity9591
+    - Telegram  : +84342029854
     
 I am waiting to receive your advice.
 
